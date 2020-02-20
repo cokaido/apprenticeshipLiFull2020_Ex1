@@ -25,6 +25,40 @@
 
 
 Git practice exercise
+
+SOLO QUIERO 
+
+
+
+
+
+
+
+
+
+
+				KAOS
+
+
+
+
+
+
+
+
+
+
+
+													Y 
+
+
+
+
+
+
+
+
+								DESTRUCCION
 miriam añade linea
 
 &#955; 3
